@@ -1,0 +1,1 @@
+Hola! Comencé este proyecto como una manera de concientizar sobre el bullying, un problema que es patente en mi liceo. Para esto, decidí crear esta página web para concientizar e informar de este problema y sus posibles soluciones
